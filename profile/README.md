@@ -26,7 +26,7 @@ TV Malaysia Online refers to the various streaming services and platforms that p
 
 ## Popular TV Malaysia Online Platforms
 
-1. **Astro Go**: Astro Go is a popular streaming service that allows subscribers to access live TV channels, on-demand content, and exclusive shows. With a wide range of genres, including drama, sports, and news, Astro Go caters to diverse viewer preferences.
+1. **Astro Go**: Astro Go is a popular streaming service that allows subscribers to access live <a href="https://www.tvmalaysia.homes/" title="TV Malaysia Online">TV Malaysia Online</a> channels, on-demand content, and exclusive shows. With a wide range of genres, including drama, sports, and news, Astro Go caters to diverse viewer preferences.
 
 2. **iFlix**: iFlix is a subscription-based streaming service that offers a vast library of movies and TV shows, including local Malaysian content and international titles. With its user-friendly interface and affordable pricing, iFlix has gained a loyal following among Malaysian viewers.
 
